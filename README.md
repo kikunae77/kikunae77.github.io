@@ -1,1 +1,1 @@
-# kikunae77.github.com
+# kikunae77.github.io
